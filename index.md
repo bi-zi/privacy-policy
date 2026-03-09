@@ -16,4 +16,4 @@
   - We do not share data with third parties.
 
   Contact:
-  If you have questions, contact: thebizi15@gmail.com
+  If you have questions, contact: any28.1175@gmail.com
